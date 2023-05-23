@@ -24,46 +24,68 @@ When Will Byers suddenly goes missing, the whole town of Hawkins, Indiana, turns
 	
 	> *image source: Netflix*
 
+---
+
 - **Finn Wolfhard** as **Mike Wheeler**
 
 	Mike was designed by series creators Matt and Ross Duffer to be a prototypical 80s main character who is loyal and energetic while also innocent due to his young age.
 	
+---
+	
 - **Gaten Matarazzo** as **Dustin Henderson**
 
 	Dustin was somewhat of a typical ‘nerd’, and had a rare genetic disorder (cleidocranial dysplasia) that prevented his teeth from developing properly, making him a prime target for bullies. He arrived at Hawkins Middle School in fourth grade, growing a strong bond with Mike, Lucas and Will and becoming best friends.
+
+---
 	
 - **Caleb McLaughlin** as **Lucas Sinclair**
 
 	Lucas Charles Sinclair is a main character in Stranger Things. He is the best friend of Mike Wheeler, Dustin Henderson, Will Byers and Eleven. He is also the older brother of Erica Sinclair as well as the on-and-off boyfriend of Max Mayfield. He is a member of "the Party" and the Hellfire Club, and is a former player for the Hawkins Tigers.
-	
+
+---
+
 - **Noah Schnapp** as **Will Byers**
 	
 	Will was a shy, artistic boy from Hawkins, Indiana who loved to play Dungeons & Dragons with his three best friends, Mike, Lucas and Dustin. However, Will's life would turn upside-down on November 6, 1983; while cycling home from his friends' latest D&D campaign, Will crossed paths with a humanoid predator hailing from an alternate dimension.
-	
+
+---
+
 - **Sadie Sink** as **Max Mayfield**
 
 	Max was originally from California, and had a keen interest in skateboarding from a young age. Following her mother's divorce and remarriage to Neil Hargrove in 1984, Max and her erratic stepbrother Billy moved to Hawkins, Indiana.
-	
+
+---
+
 - **Natalia Dyer** as **Nancy Wheeler**
 
 	Nancy is an aspiring journalist, and an ally to "the Party". She is the older sister of Mike Wheeler, the former girlfriend of Steve Harrington, and the current girlfriend of Jonathan Byers.
-	
+
+---
+
 - **Charlie Heaton as Jonathan Byers**
 
 	He is the oldest son of Joyce Byers, the older brother of Will Byers, the eventual boyfriend of Nancy Wheeler, and the best friend of Argyle.
 
+---
+
 - **Joe Keery** as **Steve Harrington**
 
 	While starting out as a typical unlikable jock, Steve has grown into a more protecting and caring character as the show has progressed, a development that has received widespread acclaim from critics and fans alike. This has led to him becoming one of the show’s most beloved and enduring character
-	
+
+---
+
 - **Winona Ryder** as **Joyce Byers**
 
 	Joyce is the single mother of series protagonists Will and Jonathan Byers
 
+---
+
 - **David Harbour** as **Jim Hopper**
 	
 	Hopper was Chief of Police in the small, sleepy town of Hawkins, Indiana, where he used to live out a carefree existence, though forever haunted by his troubled past.
-	
+
+---
+
 ### Antagonists
 
 - **Demogorgon** 👽
